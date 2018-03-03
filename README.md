@@ -12,7 +12,7 @@ The ceremony begins promptly, so please arrive on time. Reception follows the ce
 
 # Registry
 
-Stuff...
+At this point in our lives, we need cash... Badly please any thing helps god bless.
 
 # Dress Code
 
