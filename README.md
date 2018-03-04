@@ -1,4 +1,8 @@
-# Overview
+## Introduction
+
+This sit covers all of the essential information you need to get by in poina's and Ben's wedding extravaganza. ..:;? can we do this?
+
+## Overview
 
 Date: May 26th 2018
 
@@ -10,7 +14,7 @@ Time: 5:00 pm
 
 The ceremony begins promptly, so please arrive on time. Reception with food and dancing follows the ceremony after a brief break for pictures.
 
-# Registry
+## Registry
 
 At this point in our lives, we are not looking for things to fill our home with. We would prefer cash donations to help cover college and living expenses. 
 
@@ -27,11 +31,11 @@ If cash is not your thing, here is a list of places that we would appreciate gif
 * Amazon
 * Ebay
 
-# Dress Code
+## Dress Code
 
 Formal to semi-formal
 
-# Food
+## Food
 
 Maybe have this section.
 
