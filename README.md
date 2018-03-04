@@ -12,9 +12,17 @@ The ceremony begins promptly, so please arrive on time. Reception follows the ce
 
 # Registry
 
-At this point in our lives, we are not looking for any more things to fill our home with. We would prefer cash donations to help cover college and living expenses. If cash is not your thing, here is a list of places that we would appreciate gift cards to:
+At this point in our lives, we are not looking for any more things to fill our home with. We would prefer cash donations to help cover college and living expenses. 
+
+If cash is not your thing, here is a list of places that we would appreciate gift cards to:
 
 * Fred Meyer
+* QFC
+* Bed Bath and Beyond
+* Etsy
+* Michael
+* Steam
+* Frys Electronics
 
 # Dress Code
 
