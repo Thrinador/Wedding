@@ -1,6 +1,6 @@
 ## Introduction
 
-This site covers all of the essential information you need to get by in poina's and Ben's wedding.
+This site covers all of the essential information you need to get by in Polina's and Ben's wedding.
 
 ## Overview
 
