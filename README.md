@@ -1,16 +1,16 @@
 ## Introduction
 
-This site covers all of the essential information you need to get by in Polina's and Ben's wedding.
+This site covers the general information you need to know about Polina and Ben's wedding.
 
 ## Overview
 
-Date: May 26th 2018
+Date:     May 26th 2018
 
 Location: The Everett Yacht Club
 
-Address: 404 14th St, Everett, WA 98201
+Address:  404 14th St, Everett, WA 98201
 
-Time: 5:00 pm
+Time:     5:00 pm
 
 The ceremony begins promptly, so please arrive on time. Reception with food and dancing follows the ceremony after a brief break for pictures.
 
