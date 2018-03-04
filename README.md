@@ -37,12 +37,3 @@ If cash is not your thing, here is a list of places that we would appreciate gif
 * Target
 * Amazon
 * Ebay
-
-## Dress Code
-
-Formal to semi-formal
-
-## Food
-
-Maybe have this section.
-
