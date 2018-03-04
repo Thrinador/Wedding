@@ -23,7 +23,7 @@ Here are some ways that we can accept money:
 * cash
 * check made out to Ben Clark or Polina Eremenko
 * Venmo payment to @Polina-Eremenko
-* The foundation for support and relief of pain and debt caused by the greedy college institution.
+* The foundation for support and relief of pain and debt caused by the greedy college institution
 
 If cash is not your thing, here is a list of places that we would appreciate gift cards to:
 
