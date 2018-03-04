@@ -23,6 +23,7 @@ If cash is not your thing, here is a list of places that we would appreciate gif
 * Michael
 * Steam
 * Frys Electronics
+* Target
 
 # Dress Code
 
