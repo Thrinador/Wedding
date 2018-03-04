@@ -16,7 +16,14 @@ The ceremony begins promptly, so please arrive on time. Reception with food and 
 
 ## Registry
 
-At this point in our lives, we are not looking for things to fill our home with. We would prefer cash donations to help cover college and living expenses. 
+At this point in our lives, we are not looking for things to fill our home with. We would prefer monetary donations to help cover college and living expenses.
+
+Here are some ways that we can accept money:
+
+* cash
+* check made out to Ben Clark
+* Venmo payment to @Polina-Eremenko
+
 
 If cash is not your thing, here is a list of places that we would appreciate gift cards to:
 
