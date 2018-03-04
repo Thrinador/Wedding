@@ -20,7 +20,7 @@ If cash is not your thing, here is a list of places that we would appreciate gif
 * QFC
 * Bed Bath and Beyond
 * Etsy
-* Michael
+* Michaels
 * Steam
 * Frys Electronics
 * Target
