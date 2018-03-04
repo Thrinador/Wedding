@@ -24,6 +24,8 @@ If cash is not your thing, here is a list of places that we would appreciate gif
 * Steam
 * Frys Electronics
 * Target
+* Amazon
+* Ebay
 
 # Dress Code
 
