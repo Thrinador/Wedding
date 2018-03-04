@@ -4,9 +4,9 @@ This site covers the general information you need to know about Polina and Ben's
 
 ## Overview
 
-Date:⇥May 26th 2018
+Date: May 26th 2018
 
-Location:⇥The Everett Yacht Club
+Location: The Everett Yacht Club
 
 Address:⇥404 14th St, Everett, WA 98201
 
