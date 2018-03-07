@@ -12,7 +12,11 @@ Address: [404 14th St, Everett, WA 98201](https://www.google.com/maps/place/404+
 
 Time: 5:00 pm
 
+End Time: 10:00 pm
+
 The ceremony begins promptly, so please arrive on time. Reception with food and dancing follows the ceremony after a brief break for pictures.
+
+Plase refrain from takeing photos during the ceremony, we will have a professional photographer who will have pictures available later.
 
 ## Registry
 
